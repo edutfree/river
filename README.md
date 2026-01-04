@@ -1,6 +1,6 @@
 # river河流加速器官网最新地址
 
-永久地址：[https://river-csa.com](https://dash.hbwqf.com/#/register?code=Om4LZnJv)（https://河流.com）
+永久地址：[https://river-csa.com](https://dash.hbwqf.com/#/register?code=Om4LZnJv)
 
 直连地址：[https://河流.com](https://dash.hbwqf.com/#/register?code=Om4LZnJv)
 
